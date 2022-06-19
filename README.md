@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jeyzer
 - 👀 I’m interested in your mom
 - 🌱 I’m currently learning to fuck her
-- 💞️ I’m looking to collaborate on having sex with multiple people and annihilate her ass
+- 💞️ I’m looking to collaborate on having sex with multiple people to annihilate her ass
 - 📫 How to reach me pornhub.com/Jeyzer
 
 <!---
